@@ -7,3 +7,7 @@ Dr. Jaechang Shim's Graphics Class
 2. *재미있게*
 3. 유용하게
 4. 프로답게
+
+[저의 대학원생 카페는 여기 입니다.](http://cafe.naver.com/vl)
+
+![RainBow](https://cdn-icons-png.flaticon.com/512/1501/1501860.png)
